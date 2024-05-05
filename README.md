@@ -1,1 +1,1 @@
-# Master-s-Degree
+# Masters-Degree
